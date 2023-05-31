@@ -1,0 +1,2 @@
+# DDOS-ATTAK
+DDOS ATTACKER  DEATH NET v7.1 by Fraddyrad
